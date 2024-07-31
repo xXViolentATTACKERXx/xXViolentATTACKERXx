@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Batch and Phyton
 - 💞️ I’m looking to collaborate on Other Hacker
 - 📫 YOU CANT REACH ME >:)
-- 😄 Pronouns: He
+- 😄 Pronouns: His/He
 - ⚡ Fun fact: I live in Indonesia and i just wanna say KOMINFO GBLK
 
 <!---
